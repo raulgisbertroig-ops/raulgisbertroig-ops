@@ -1,4 +1,4 @@
-# Hi, I'm Raül Roig 👋
+# Hi, I'm Raül Gisbert Roig 👋
 
 ### DAM Student | Backend & Software Development
 
