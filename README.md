@@ -41,4 +41,5 @@ I'm currently looking for an opportunity to gain real-world experience through m
 
 📍 Tarragona / Tortosa area
 
-🔗 [[LinkedIn](https://www.linkedin.com/in/raulgisbertroig/)](https://www.linkedin.com/in/raulgisbertroig/?isSelfProfile=true)
+🔗 **[LinkedIn](https://linkedin.com)**
+
